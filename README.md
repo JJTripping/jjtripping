@@ -1,1 +1,1 @@
-# jjtripping.github.io
+# jjtripping
